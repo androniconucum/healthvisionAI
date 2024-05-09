@@ -1,1 +1,1 @@
-Medical Image Analysis A.I ☺️
+Medical Image Analysis - artificial intelligence ☺️
